@@ -10,6 +10,29 @@ tags:
 ---
 
 Lech Lecha
+
+1. Is your household in order?
+
+Things are a little messier today, and my front screen door broke in the wind last night. But will get these things in order tonight so that I can go vote and then flee to the hills.
+
+2. Is there anything I can pray for your life?
+
+Grace, patience, and humility. Discernment. Protection for those who are in or near the city.
+
+3. What are you seeking?
+
+I've been trying to live every moment as though God is present in my life. I've been leaving the passenger seat open when I drive, which is maybe a little bit goofy but it serves as a good reminder and I don't want to seem rude.
+
+4. Are there any new things in holiness you have added to your life to walk in?
+
+See above! I'm walking with Christ. I don't really have a practice for memorizing verses and I need to start doing that. This week I also felt the call to start recording myself reading Torah out loud, but I haven't begun doing that yet. I made a tallit (out of a turkish towel, it's more of a towelit)
+
+5. Is there anything new you have learned?
+   My big lesson this week, in a couple different ways, was that I need to trust God to provide. Not that I didn't already, but in more direct and specific ways. For example, that I don't need to follow every news story or obsess with the latest stuff. I can just trust God to show me what he needs to show me. Or I don't need to fight or win arguments, I just need to trust God to open the heart of somebody. I'm trying to apply this in a lot of different ways.
+
+6. Anything in Torah, class, devotionals, or outside reading that “hit you?”
+   The Thing below about the Tzitzit being the Challah bread was pretty cool!
+
 One of the things that I've never been able to figure out this whole bit about Abraham calling Sarah his sister. It happens twice, and once with Isaac, and I just don't get it. I sat and prayed for a little bit about this and the best that I am able to come up with is that it is essentially a moment of the patriarchs being "unpatriarchal, or being bad servants to God.
 The Pharoah gives Abraham a wealth anyways, and sends him on his way, though he only does so after being beset with plagues.
 
